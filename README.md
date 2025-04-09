@@ -2,7 +2,7 @@ Täh?
 
 Most advanced gpt coder in the world.
 
-Founder of FISSI, will be published in 2025!
+Founder of FISSI
 
 ![pepe](https://github.com/user-attachments/assets/78cdb99a-a6b3-4b09-b370-16af77daee38)
 
